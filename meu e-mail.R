@@ -1,2 +1,2 @@
 "amanda7409@hotmail.com" - comentario qualquer
-quero ir embora daqui
+quero ir embora pra casa
